@@ -12,4 +12,4 @@ alexandra.arruio00@gmail.com
 
 ale_arruio
 
-![](https://tenor.com/pt-BR/view/umm-gif-11714145596342171098)
+![](https://media.tenor.com/171110TPLUAAAAC/naruto.gif)
